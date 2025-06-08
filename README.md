@@ -13,16 +13,18 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Địt khoét cái lỗ, địt khắp cái lỗ bướm
 
 
-Địt mẹ thằng già Luân lồn Tao địt con mẹ mày
+Địt mẹ thằng già Luân lồn(cha_ne_con) Tao địt con mẹ mày
 Như lồn trâu lồn chó, lồn bó xi măng
 Lồn chằng mạng nhện mà lồn bện là khoai
 Lồn quai lá mít, lồn đít lồn cơm
-Lồn tơm lồn đậm, lồn đười ươi nó địt
-Lồn con vịt nó phang, lồn giang mai lồn ỉa chảy
+Lồn tơm lồn đậm, lồn đười ươi
+Lồn con vịt phang, lồn giang mai lồn ỉa chảy
 Lồn nhảy hiphop, lồn hàng xốp địt
 Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Đứng từ trên cao, mà lao đầu xuống đất
 Địt lất phất như mưa rơi, địt tơi bởi như bom đạn
 Mà địt chai lỗ đít, địt khít cái lỗ lồn
 Địt khoét cái lỗ, địt khắp cái lỗ bướm.
+
+
 
