@@ -13,7 +13,7 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Địt khoét cái lỗ, địt khắp cái lỗ bướm
 
 
-Địt mẹ thằng già Luân lồn 54 tuồi mà ngu (cha_ne_con) Tao địt con mẹ mày
+Địt mẹ thằng già Luân lồn U40 mà ngu (cha_ne_con) Tao địt con mẹ mày
 Như lồn trâu lồn chó, lồn bó xi măng
 Lồn chằng mạng nhện mà lồn bện là khoai
 Lồn quai lá mít, lồn đít lồn cơm
