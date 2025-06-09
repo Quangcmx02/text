@@ -24,7 +24,9 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Đứng từ trên cao, mà lao đầu xuống đất
 Địt lất phất như mưa rơi địt tơi bởi như bom đạn
 Mà địt chai lỗ đít địt khít cái lỗ lồn
-Địt khoét cái lỗ địt khắp cái lỗ bướm
+Địt nát lồn mẹ mày
+
+
 
 
 
