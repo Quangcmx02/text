@@ -55,7 +55,7 @@ Mà địt chai lỗ đít địt khít cái lỗ lồn
 Địt nát lồn mẹ mày
 
 
-Địt mẹ thằng lồn  kunlove94 Địt mẹ mày địt chị mày địt bà ngoại mày tao sẽ địt mãi mãi Mồm thì há má thì sưng tử cung sơ cứng mà tao vẫn miệt mài và tao vẫn điêt thả xác xuống sông. Lồn mẹ mày bé nhét chim tao vào lồn to như bò Địt con mẹ mày tràn đầy cái lò xo địt con mẹ mày như là địt 1 con phò nước lồn  thò lò chảy đầy cái lọ Tao vừa địt vừa hát như Quang Thọ địt xong rồi cầm cờ lê tao gõ mõ bông byện Địt sập thuyền Địt đong biển Địt mẹ mày liên miên như là 1 chuyên viên
+Địt mẹ thằng g.ay  kunlove94 Địt mẹ mày địt chị mày địt bà ngoại mày tao sẽ địt mãi mãi Mồm thì há má thì sưng tử cung sơ cứng mà tao vẫn miệt mài và tao vẫn điêt thả xác xuống sông. Lồn mẹ mày bé nhét chim tao vào lồn to như bò Địt con mẹ mày tràn đầy cái lò xo địt con mẹ mày như là địt 1 con phò nước lồn  thò lò chảy đầy cái lọ Tao vừa địt vừa hát như Quang Thọ địt xong rồi cầm cờ lê tao gõ mõ bông byện Địt sập thuyền Địt đong biển Địt mẹ mày liên miên như là 1 chuyên viên
 
 
 
