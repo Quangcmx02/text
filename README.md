@@ -36,8 +36,8 @@ Lồn nhảy hiphop lồn hàng xốp địt
 Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Đứng từ trên cao, mà lao đầu xuống đất
 Địt lất phất như mưa rơi địt tơi bởi như bom đạn
-Mà địt chai lỗ đít địt khít cái lỗ lồn
-Địt nát lồn mẹ mày
+▉▉▉▉▉▉▉▛▛▛▛▛▛▛▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚▚
+
 
 
 Địt mẹ thằng già kunlove94 lồn  Tao địt con mẹ mày
