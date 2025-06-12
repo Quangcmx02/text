@@ -66,7 +66,7 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Mà địt chai lỗ đít địt khít cái lỗ lồn
 Địt nát lồn mẹ mày địt 
 
-Địt mẹ lũ lồn kunlove94,kglkv17bg, kieuoanhphan,phamhuong124 Tao địt con mẹ chúng mày
+Địt mẹ lũ lồn tranhienhien,quinguyenn, jason.ninhvo Tao địt con mẹ chúng mày
 Như lồn trâu lồn chó, lồn bó xi măng
 Lồn chằng mạng nhện mà lồn bện là khoai
 Lồn quai lá mít, lồn đít lồn cơm
