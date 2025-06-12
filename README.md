@@ -77,7 +77,7 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Đứng từ trên cao, mà lao đầu xuống đất
 Địt lất phất như mưa rơi địt tơi bởi như bom đạn
 Mà địt chai lỗ đít địt khít cái lỗ lồn
-Địt nát lồn
+▚▚▚▚▚▚▚▚▚▚▚▚▚▚
 
 Địt mẹ 2 con phò tranhienhien, tkshtdy_95 giật chồng người khác Tao địt con mẹ mày
 Như lồn trâu lồn chó lồn bó xi măng
