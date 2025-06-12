@@ -50,7 +50,7 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 
 
 
-🇻🇳Địt mẹ thằng già Luân lồn CALI phản quốc U40 mà ngu(cha_ne_con) núp như chó đéo dám spam qua đêm Tao địt con mẹ mày Như lồn trâu lồn chó, lồn bó xi măng Lồn chằng mạng nhện mà lồn bện là khoai Lồn quai lá mít, lồn đít lồn cơm Lồn tơm lồn đậm, lồn đười ươi Lồn con vịt phang, lồn giang mai lồn ỉa chảy Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày Đứng từ trên cao, mà lao đầu xuống đất Địt lất phất như mưa rơi địt tơi bởi như bom đạn🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳 🇻🇳🇻🇳🇻🇳
+🇻🇳Địt mẹ thằng già Luân lồn CALI phản quốc U40 mà ngu(cha_ne_con), heartothewolf,kglkv17b Tao địt con mẹ mày Như lồn trâu lồn chó, lồn bó xi măng Lồn chằng mạng nhện mà lồn bện là khoai Lồn quai lá mít, lồn đít lồn cơm Lồn tơm lồn đậm, lồn đười ươi Lồn con vịt phang, lồn giang mai lồn ỉa chảy Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày Đứng từ trên cao, mà lao đầu xuống đất Địt lất phất như mưa rơi địt tơi bởi như bom đạn🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳🇻🇳 🇻🇳🇻🇳🇻🇳
 
 
 Địt mẹ thằng già kunlove94 lồn  Tao địt con mẹ mày
