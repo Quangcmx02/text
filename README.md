@@ -66,17 +66,17 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Mà địt chai lỗ đít địt khít cái lỗ lồn
 Địt nát lồn mẹ mày địt 
 
-Địt mẹ thằng CALI phản quóc(cha_ne_con), con phò Ngọc(kglkv1b7g) giật chồng che hộ bố Tao địt con mẹ chúng mày
-Như lồn trâu lồn chó, lồn bó xi măng
+Địt mẹ thằng già Luân CALI phản quóc(cha_ne_con) con phò Ngọc(kglkv1b7g) giật chồng che hộ bố Tao địt con mẹ chúng mày
+Như lồn trâu lồn chó lồn bó xi măng
 Lồn chằng mạng nhện mà lồn bện là khoai
-Lồn quai lá mít, lồn đít lồn cơm
-Lồn tơm lồn đậm, lồn đười ươi
-Lồn con vịt phang, lồn giang mai lồn ỉa chảy
+Lồn quai lá mít lồn đít lồn cơm
+Lồn tơm lồn đậm lồn đười ươi
+Lồn con vịt phang lồn giang mai lồn ỉa chảy
 Lồn nhảy hiphop lồn hàng xốp địt
-Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
-Đứng từ trên cao, mà lao đầu xuống đất
+Lồn hàng triệu con súc vật mà tao địt con đĩ mẹ mày
+Đứng từ trên cao mà lao đầu xuống đất
 Địt lất phất như mưa rơi địt tơi bởi như bom đạn
-Mà địt chai lỗ đít địt khít
+Mà địt chai lỗ đít địt
 
 Địt mẹ 2 con phò tranhienhien, tkshtdy_95 giật chồng người khác Tao địt con mẹ mày
 Như lồn trâu lồn chó lồn bó xi măng
