@@ -66,7 +66,7 @@ Lồn hàng triệu con súc vật, mà tao địt con đĩ mẹ mày
 Mà địt chai lỗ đít địt khít cái lỗ lồn
 Địt nát lồn mẹ mày địt 
 
-🇻🇳Địt mẹ thằng già Luân CALI phản quóc(cha_ne_con) con phò Ngọc(kglkv1b7g) giật chồng Tao địt con mẹ chúng mày
+🇻🇳Địt mẹ thằng già U40 Luân lồn CALI phản quóc(cha_ne_con) con phò Ngọc(kglkv1b7g) giật chồng Tao địt con mẹ chúng mày
 Như lồn trâu lồn chó lồn bó xi măng
 Lồn chằng mạng nhện mà lồn bện là khoai
 Lồn quai lá mít lồn đít lồn cơm
