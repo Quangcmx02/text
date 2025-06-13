@@ -86,19 +86,19 @@ Mà địt chai lỗ đít địt khít cái lỗ lồn
 
 
 
-Luân ơi(cha_ne_con) Hiện hồn về gặp bố!
-Bát cơm cúng, chén trà thơm,
-Bên tấm ảnh cũ còn vương khói nhang,
-Tình xưa nghĩa cũ chưa tàn,
-Làm sao nỡ để bạn hoang mang giữa đời?Gọi ba hồn bảy vía,
-Nếu đang lạc chốn cõi mơ,
-Xin theo tiếng gọi mà về,
-Đừng ngại đêm sâu, đừng sợ gió độc.Ngồi xuống đây, kể đôi lời,
-Dạo này âm phủ có wifi chưa dùng?
-Việc dương thế còn gì chưa dứt?
-Chuyện tình duyên còn ai chưa quên?Nếu oan khuất còn chưa dứt,
-Cứ hiện về, cứ nói thẳng!
-Chớ hiện mơ hồ hù dọa lung tung, Kéo màn làm gió, bạn bè chạy mất!
+Luân ơi(cha_ne_con) Hiện hồn về gặp bố
+Bát cơm cúng chén trà thơm
+Bên tấm ảnh cũ còn vương khói nhang
+Tình xưa nghĩa cũ chưa tàn
+Làm sao nỡ để bạn hoang mang giữa đời?Gọi ba hồn bảy vía
+Nếu đang lạc chốn cõi mơ
+Xin theo tiếng gọi mà về
+Đừng ngại đêm sâu đừng sợ gió độc Ngồi xuống đây kể đôi lời
+Dạo này âm phủ có wifi chưa dùng
+Việc dương thế còn gì chưa dứt
+Chuyện tình duyên còn ai chưa quên?Nếu oan khuất còn chưa dứt
+Cứ hiện về cứ nói thẳng
+Chớ hiện mơ hồ hù dọa lung tung Kéo màn làm gió, bạn bè chạy mất
 
 
 
