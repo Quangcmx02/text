@@ -86,7 +86,7 @@ Mà địt chai lỗ đít địt khít cái lỗ lồn
 
 
 
-Luân ơi!(cha_ne_con) Hiện hồn về gặp bố!
+Luân ơi(cha_ne_con) Hiện hồn về gặp bố!
 Bát cơm cúng, chén trà thơm,
 Bên tấm ảnh cũ còn vương khói nhang,
 Tình xưa nghĩa cũ chưa tàn,
